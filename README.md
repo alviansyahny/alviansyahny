@@ -92,6 +92,6 @@ I'm a **D4 Informatics Engineering** student at Politeknik Negeri Jember (GPA 3.
 <div align="center">
 
 *Open to internship, freelance, and collaboration opportunities.*
-**Let's build something great together → [wa.me/6287894300333](https://wa.me/6287896939398)**
+**Let's build something great together → [wa.me/6287894300333](https://wa.me/6287894300333)**
 
 </div>
